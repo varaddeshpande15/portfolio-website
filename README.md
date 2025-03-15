@@ -36,7 +36,7 @@ Check out my portfolio here: 👉 [Varad Deshpande Portfolio](https://varaddeshp
 ## 📬 Contact  
 
 📧 Email: [varaddeshpande81@gmail.com]  
-🔗 LinkedIn: [https://www/linkedin.com/in/varaddeshpande15]  
+🔗 LinkedIn: [https://www.linkedin.com/in/varaddeshpande15/]  
 
 ---
 
